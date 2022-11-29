@@ -1,0 +1,1 @@
+I don't tip because society says I have to
